@@ -1,6 +1,6 @@
 ### Welcome to Aika's profile! 👋
 
-# Business before pleasure!
+#### Business before pleasure!
 
 Feel free to ask me about my projects
 
