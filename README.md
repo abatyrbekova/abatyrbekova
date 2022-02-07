@@ -1,6 +1,6 @@
-### Welcome to Aigerims's profile! 👋
+### Welcome to Aigerim's profile! 👋
 
-#### Let's have a happy coding!
+#### Let's have a happy coding! 😉️
 
 Feel free to ask me about my projects batyrbekova592@gmail.com
 
