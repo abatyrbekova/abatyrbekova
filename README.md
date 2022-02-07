@@ -1,6 +1,6 @@
-### Welcome to Aika's profile! 👋
+### Welcome to Aigerims's profile! 👋
 
-#### Business before pleasure!
+#### Let's have a happy coding!
 
 Feel free to ask me about my projects batyrbekova592@gmail.com
 
